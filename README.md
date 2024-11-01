@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @6llGRUSHAll6
+- 👀 I’m interested in ... Разработка на Python/python development
+- 🌱 I’m currently learning ... Я учусь программировать на Python
+- 💞️ I’m looking to collaborate on ... -
+- 📫 How to reach me ... discord - 6llgrushall6
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ... мне 13 лет/I am 13 years old
