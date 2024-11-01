@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning ... Я учусь программировать на Python
 - 💞️ I’m looking to collaborate on ... -
 - 📫 How to reach me ... discord - 6llgrushall6
-- 😄 Pronouns: ...
+- 😄 Pronouns: ... он/eго | he/him
 - ⚡ Fun fact: ... мне 13 лет/I am 13 years old
